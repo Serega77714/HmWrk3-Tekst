@@ -1,0 +1,1 @@
+HmWrk3-Tekst
